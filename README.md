@@ -1,1 +1,1 @@
-# Forschungsbericht-Zusammenhang-Alptraumh-ufigkeit-und-Depressionen
+# Forschungsbericht-Zusammenhang-Alptraumhaeufigkeit-und-Depressionen
